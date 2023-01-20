@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Wilson
 - 👀 I’m interested in building my empire
-- 🌱 I’m currently learning how to defund evil corporate organizations
-- 💞️ I’m looking to collaborate on taking down corrupt and evil governments
+- 🌱 I’m currently learning how to defund evil organizations
+- 💞️ I’m looking to collaborate on taking down evil organizations
 - 📫 How to reach me wilsonxfeng@gmail.com
 
 <!---
