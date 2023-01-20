@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @havocTF
-- 👀 I’m interested in building my oil empire
+- 👋 Hi, I’m Wilson
+- 👀 I’m interested in building my empire
 - 🌱 I’m currently learning how to defund evil corporate organizations
 - 💞️ I’m looking to collaborate on taking down corrupt and evil governments
 - 📫 How to reach me wilsonxfeng@gmail.com
